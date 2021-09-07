@@ -3,7 +3,7 @@
 -  My abilities are machine learning, artificial intelligence, website development
 -  I love reading about history and politics ❤️👤📖
 -  Countries and regions I have worked with: Turkey 🇹🇷 , Iraq 🇮🇶 , Kurdistan Region ☀️
--  Chat with me on Telegram, @rojcode or Instagram @rojcode 
+-  Chat with me on Telegram @rojcode or Instagram @rojcode 
 
 
 
