@@ -2,7 +2,7 @@
 -  A software engineer 🧑‍💻️ who loves doing new and creative projects. Unlike all programmers, I get energy with tea 🍵
 -  My abilities are machine learning, artificial intelligence, website development
 -  I love reading about history and politics ❤️👤📖
--  With the country and regions I have worked with: Turkey 🇹🇷 , Iraq 🇮🇶 , Kurdistan Region ☀️
+-  Countries and regions I have worked with: Turkey 🇹🇷 , Iraq 🇮🇶 , Kurdistan Region ☀️
 -  Chat with me on Telegram, @rojcode or Instagram @rojcode 
 
 
